@@ -1,0 +1,4 @@
+- Im 5dimension/Selverist_Saatan :D
+- i like spacial dimensions and particle science
+- I am looking forward to learning game development and other stuff
+- I am a begginer and not very good at coding
